@@ -8,6 +8,7 @@
 ⚡Хобби: люблю лингвистику и научную фантастику.
 
 📫 Facebook: nikolay.astakhayev
+
 LinkedIn: nikolay-astakhayev
 
 <!--
